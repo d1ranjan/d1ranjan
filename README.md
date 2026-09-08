@@ -1,6 +1,6 @@
 - 👋 Hi, I’m DIPANSHU RANJAN 
 - 👀 I’m interested in coding and web development 
-- 🌱 I’m currently learning in NSEC
+- 🌱 I’m currently learning at NSEC
 - 💞️ I’m looking to collaborate on various upcoming projects 
 - 📫 How to reach me at www.linkedin.com/in/d1ranjan
 - 😄 Pronouns: HE/HIM
